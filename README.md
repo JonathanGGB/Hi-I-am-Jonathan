@@ -1,2 +1,2 @@
-# Hi-I-m-Jonathan-G-mez
+# Hi I'm Jonathan Gómez
   My short personal introduction
